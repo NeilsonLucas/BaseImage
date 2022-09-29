@@ -13,3 +13,5 @@
 ![Mariana Botelho](https://user-images.githubusercontent.com/102665136/193124203-30d43d2b-4c17-44b2-9e31-db9c1b904c1b.png)
 ![Wagner Luís](https://user-images.githubusercontent.com/102665136/193124206-53185559-b625-4445-a401-cda44bfb7bf4.png)
 ![Daniela Frazão](https://user-images.githubusercontent.com/102665136/193124209-b026628e-e3b0-43ed-b2fe-41d966093398.png)
+![Jorge Silva](https://user-images.githubusercontent.com/102665136/193131008-9f43b8e3-65fb-4d11-98d7-e55cfc04c005.png)
+![Helío Freire](https://user-images.githubusercontent.com/102665136/193131010-3e4331c6-e420-4e48-8f3d-adcff0102511.png)
