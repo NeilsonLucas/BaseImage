@@ -15,3 +15,7 @@
 ![Helio Freire](https://user-images.githubusercontent.com/102665136/193349886-4761e8a9-67b4-4295-91c1-20f59102cce3.png)
 ![Jorge Silva](https://user-images.githubusercontent.com/102665136/193349890-6cd468e2-0934-4b4e-b6fe-8328c645e9ac.png)
 ![Lucas Diniz](https://user-images.githubusercontent.com/102665136/193349894-9b37243e-326d-4576-bdbd-c646a42a87e2.png)
+![Moderna](https://user-images.githubusercontent.com/102665136/193911285-6f2649cb-d9a0-450f-a0a0-71b19cc57e14.png)
+![Honest Nuts](https://user-images.githubusercontent.com/102665136/193911314-1e927a4e-e3ba-4e9d-8749-2e626ea727a2.png)
+![Eduardo Nunes](https://user-images.githubusercontent.com/102665136/193911319-42494083-4215-40ea-8283-6158c23e35cc.png)
+![Burguelinho](https://user-images.githubusercontent.com/102665136/193911324-c2852d00-ed35-495d-a2c7-4f487c036fdc.png)
