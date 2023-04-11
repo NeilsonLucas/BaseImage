@@ -21,3 +21,7 @@
 ![Burguelinho](https://user-images.githubusercontent.com/102665136/193911324-c2852d00-ed35-495d-a2c7-4f487c036fdc.png)
 ![coleção ilhas](https://user-images.githubusercontent.com/102665136/207110392-17eaf837-60a6-4a08-ad87-37cabd452a71.jpg)
 ![BANNER SHORT ACQUA2](https://user-images.githubusercontent.com/102665136/207110397-cc357e43-e847-4228-9bbe-6d64114969cd.jpg)
+![BANNERS - MOBILE - J3 - SHORTS](https://user-images.githubusercontent.com/102665136/231169198-421c4088-cbf7-4a1a-a572-54b35489135b.png)
+![BANNERS - MOBILE - J3 - PREMIUM](https://user-images.githubusercontent.com/102665136/231169269-fe902520-537f-42c6-a6d7-bb72c061d84a.png)
+![BANNERS - MOBILE - J3 - BIRKEN](https://user-images.githubusercontent.com/102665136/231169326-728e9cf9-0389-43f8-a399-5045ead3fbf7.png)
+![BANNERS - MOBILE - J3 - SALE](https://user-images.githubusercontent.com/102665136/231169402-be22df5d-6633-4347-9206-e1d26a9265f5.png)
